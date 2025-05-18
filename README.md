@@ -7,5 +7,7 @@ I'm Alienkrishn ~Anon4You
 
 # Lern more
 * [YouTube](https://www.youtube.com/@alienkrishnorg)
-* [Telegram](https://t.me/+_74ddKXhXJE1ZjZl)
+* [Telegram](https://t.me/+7TIiG4xgzH41NGM1)
 * [Odysee](https://odysee.com/@alienkrishn)
+
+* 
